@@ -1,4 +1,4 @@
-# 👋 Hey, I'm Zachary Bornheimer
+# Zachary Bornheimer
 
 🚀 **Technology Executive | AI Innovator | Startup Founder**  
 🎷 **[Jazz Composer & Saxophonist](https://zachjazz.com) | GRAMMY® Award-Winning Album Assoc. Producer**  
